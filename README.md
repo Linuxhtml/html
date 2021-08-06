@@ -1,3 +1,3 @@
 HTML5, PHP, CSS, JAVA
-Linuxadministration / Linuxandy / Germany
+Linuxadministration / Linuxandy / Germany /
 derkritiker@protonmail.com
